@@ -2,3 +2,4 @@
 
 
 https://paypal.me/traderbay
+https://wise.com/pay/me/rakibh17
